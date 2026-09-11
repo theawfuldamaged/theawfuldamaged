@@ -7,6 +7,14 @@
  ◜◡◝
   ♡   .   —  ꒰ 𝙘 + 𝙝 𝙛𝙧𝙚𝙚𝙡𝙮 ... ꒱
 
+  <details>
+<summary>𝙗𝙚𝙛𝙤𝙧𝙚 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩𝙞𝙣𝙜 ..</summary>
+
+Your caution text goes here!
+This is hidden until someone clicks the summary.
+
+</details>
+
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
 $\color{#FF0000}{Randal~Sharingyume!}$
