@@ -9,7 +9,7 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-<div style={{ color: 'red' }}>randal yumeshipper</div>
+$\color{#FF0000}{Randal~Sharingyume!}$
 
 <div align="center">
 <img src="stamp-ranfren.webp" width="200" height="200" alt="Description">
