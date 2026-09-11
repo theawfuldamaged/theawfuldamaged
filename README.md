@@ -27,4 +27,4 @@
 $\color{#FF0000}{Randal~Sharingyume!}$
 
 <div align="center">
-<img src="stamp-ranfren.webp" width="200" height="200" alt="Description">
+<img src="127426584_hMBkYxXjKWNXXuW.gif" width="200" height="200" alt="Description">
