@@ -24,7 +24,7 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-$\color{#C4101A}{Dylan,~mylove<3!}$
+$\color{#C4101A}{meow!}$
 
 <div align="center">
 <img src="127426584_hMBkYxXjKWNXXuW.gif" width="200" height="200" alt="Description">
