@@ -24,7 +24,7 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-$\color{#C4101A}{meow!}$
+$\color{#C4101A}{randal~sharingyume!}$
 
 <div align="center">
-<img src="127426584_hMBkYxXjKWNXXuW.gif" width="200" height="200" alt="Description">
+<img src="tenor (1).gif" width="200" height="200" alt="Description">
