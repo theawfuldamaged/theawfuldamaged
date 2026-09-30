@@ -1,6 +1,8 @@
 <div align="center">
   
-𐔌  **Sop** hie 𓏵  **sid** ney ⁺  ︵ ༺
+𐔌  **Sop** hie 𓏵  **pop** pie ⁺ 🎀🌈 ︵ ༺
+
+**your** emotional support seal !!
 
 
   𓂃  she , her  ꕮ 15
@@ -24,7 +26,7 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-$\color{#C4101A}{randal~sharingyume!}$
+$\color{#6772f0}{proud~ofyuu<3}$
 
 <div align="center">
-<img src="tenor (1).gif" width="200" height="200" alt="Description">
+<img src="ezgif-155026f63f0d1123.gif" width="200" height="200" alt="Description">
