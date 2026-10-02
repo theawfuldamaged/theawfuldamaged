@@ -1,6 +1,6 @@
 <div align="center">
   
-𐔌  **Sop** hie 𓏵  **pop** pie ⁺ 🎀🌈 ︵ ༺
+𐔌  **Sop** hie 𓏵  **pop** pie ⁺ 🎀🌈 ︵ ༺ or sidney ..
 
 **your** emotional support seal !!
 
