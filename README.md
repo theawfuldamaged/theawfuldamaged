@@ -29,4 +29,4 @@
 $\color{#6772f0}{proud~ofyuu<3}$
 
 <div align="center">
-<img src="ezgif-155026f63f0d1123.gif" width="200" height="200" alt="Description">
+<img src="128780330_DjvPTzR8jO3yKQ7.gif" width="200" height="200" alt="Description">
