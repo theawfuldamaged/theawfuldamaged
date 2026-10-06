@@ -1,8 +1,8 @@
 <div align="center">
   
-𐔌  **Sop** hie 𓏵  **pop** pie ⁺ 🎀🌈 ︵ ༺ or sidney ..
+𐔌  **Sop** hie 𓏵  **sid** ney ⁺ 🎀 ︵ ༺ 
 
-**your** emotional support seal !!
+PLEASEPLEASE PLEASE BE MYFRIEND
 
 
   𓂃  she , her  ꕮ 15
@@ -29,4 +29,7 @@
 $\color{#6772f0}{proud~ofyuu<3}$
 
 <div align="center">
-<img src="128780330_DjvPTzR8jO3yKQ7.gif" width="200" height="200" alt="Description">
+<img src="128261924_pM5hYJwplViZtl1.png" width="200" height="200" alt="Description">
+
+
+sitetampo's 1# fan
